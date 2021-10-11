@@ -1,4 +1,4 @@
-# ErikaSFS2
+# Erika Faustino
 
 Hey :sunny:
 
